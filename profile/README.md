@@ -1,6 +1,6 @@
 # Chhava Movie 𝐃o𝐰𝐧loa𝐝 HD 𝐌𝐩𝟒m𝐨𝐯iez 
 
-The world of cinema has often looked to history for inspiration, and one such film that shines in this regard is *Chhava*. The film is a stirring portrayal of the heroic Maratha warrior, Chhatrapati Shivaji Maharaj's legacy, and it highlights the spirit of valor, honor, and nationalism that defined the Maratha Empire.
+The world of cinema has often looked to history for inspiration, and one such film that shines in this regard is *Chhava*. The film is a stirring portrayal of the heroic Maratha warrior, Chhatrapati Shivaji Maharaj's legacy, and it highlights the spirit of valor, honor, and nationalism that defined the Maratha Empire
 
 <h3><a href="https://movieslink.short.gy/Chhaava">➤ ►🌍📺📱👉 Chhava 𝙈𝙤𝙫𝙞𝙚 𝘿𝙤𝙬𝙣𝙡𝙖𝙤𝙙</a></h3>
 
